@@ -1,2 +1,2 @@
 # Jona
-d ko...gwapa ko kaayo...ayaw pagbuot
+d ko gwapa ko kaayo...ayaw pagbuot
